@@ -1,0 +1,2 @@
+# ESKERE
+modo diablo
